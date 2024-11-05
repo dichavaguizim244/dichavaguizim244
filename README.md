@@ -11,7 +11,8 @@ Aqui estão algumas ideias para você começar:
 - 🤟 Pronomes: ...
 - ⚡ Curiosidade: ...
 -->🤯
-![instagram](https://www.instagram.com) @dichava_guizim
+  [youtube](https://www.youtube.com)
+[instagram  @dichava_guizim
 ![](https://media1.tenor.com/m/-cQWzpkkqT0AAAAd/grau-moto.gif)
 -☯️
-https://
+
